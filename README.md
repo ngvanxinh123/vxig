@@ -1,4 +1,4 @@
-# 👋 Hi, I’m @ngvanxinh123
+# 👋 Hi, I’m Van Xinh
 
 ## 🚀 About Me
 
